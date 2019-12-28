@@ -82,6 +82,62 @@ wtl
 via Flickr
 https://flic.kr/p/B85ajH
 
+## Butterflies
+
+### 17327171812_920f3af14c_o.jpg
+
+Image of butterfly on stick on pink and green muted background
+CC-BY
+Michael R. P. Ragazzon
+Butterfly
+
+via Flickr
+https://flic.kr/p/sp9hvA
+
+
+### 26923716590_0715a06846_o.jpg
+
+Image of white butterfly on green background
+CC-BY-SA
+Alastair Rae
+Cryptic wood white
+
+via Flickr
+https://flic.kr/p/H2a5Wb
+
+
+### 24997251932_197e2ea570_o.jpg
+
+Image of butterfly resting in water, muted colours
+CC-BY-SA
+GorissM
+Butterfly resting
+
+via Flickr
+https://flic.kr/p/E5Vs7h
+
+### 30558782641_472f2fe06f_o.jpg
+
+Close up of butterfly with wings extended, muted green background
+CC-BY-SA
+Dr. Hans-Günter Wagner
+DSC03667
+
+via Flickr
+https://flic.kr/p/NynKqM
+
+
+### 19746570912_d0062d17ac_o.jpg
+
+White butterfly with black dots
+CC-BY
+montillon.a
+white butterfly
+
+
+via Flickr
+https://flic.kr/p/w5Wkzb
+
 
 
 
